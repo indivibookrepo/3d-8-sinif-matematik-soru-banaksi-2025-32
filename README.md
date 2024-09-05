@@ -1,0 +1,1 @@
+# 3d-8-sinif-matematik-soru-banaksi-2025-32
